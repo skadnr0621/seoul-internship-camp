@@ -1,6 +1,6 @@
 # Seoul Internship Camp
 
-# Schedule & Contents
+🐱‍👓 Schedule & Contents
 🐱‍🏍 5/24 月
 OT
 
